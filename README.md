@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Marklangto
-- 👀 I’m interested in Web Design 
+- 👀 I’m interested in Web Develop
 - 🌱 I’m currently learning Graphic Designing
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me thru my email: angeloilagan451@gmail.com
